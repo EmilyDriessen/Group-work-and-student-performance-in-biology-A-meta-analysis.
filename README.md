@@ -1,0 +1,2 @@
+# Group-work-and-student-performance-in-biology-A-meta-analysis.
+Calls for instructor adoption of active learning strategies in post-secondary Science, Technology, Engineering, and Mathematics (STEM) courses may not elaborate on specific practices that are effective or how to implement them in the classroom.  We show, that by encouraging group work, instructors can increase student performance outcomes by an entire letter grade. We call on instructors to utilize this evidence-based active learning strategy to increase student performance and potentially learning in STEM. 
